@@ -14,3 +14,9 @@
 
 
 ![Screenshot 2023-05-17 165332](https://github.com/Techbrolakes/easepay/assets/45468437/7a97fed0-9653-46f5-9395-6b73df27e025)
+
+<br />
+<br />
+<br />
+
+![Screenshot 2023-05-20 163220](https://github.com/Techbrolakes/easepay/assets/45468437/f5306064-b704-42dd-9f0a-20894eb73dc0)
